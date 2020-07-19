@@ -23,3 +23,11 @@ A place to document our fragmented infinity bottle, the way we change it, and to
 * Noah's Mill Bourbon, Batch 20-22 (50%)
   * Distiller Link: https://www.kentuckybourbonwhiskey.com/the-whiskeys/noahs-mill/
   * Review Link: None available for this batch
+
+## July 19 Addition
+
+~187ml left of the above, add 750ml of:
+
+* Willet Straight Rye Whiskey
+  * Distiller Link: https://www.kentuckybourbonwhiskey.com/the-whiskeys/willett-family-estate-bottled-rye/
+  * Review Link: https://malt-review.com/2019/12/18/willett-straight-rye-whiskey/
