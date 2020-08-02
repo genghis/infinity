@@ -31,3 +31,12 @@ A place to document our fragmented infinity bottle, the way we change it, and to
 * Willet Straight Rye Whiskey
   * Distiller Link: https://www.kentuckybourbonwhiskey.com/the-whiskeys/willett-family-estate-bottled-rye/
   * Review Link: https://malt-review.com/2019/12/18/willett-straight-rye-whiskey/
+
+
+## Aug 2 Addition
+
+~300ml left of above, add 750ml of:
+
+* J Carver Straight Rye Whiskey
+  * Distiller Link: https://www.jcarverdistillery.com/ryes
+  * Review Link: https://thewhiskeywash.com/whiskey-styles/american-whiskey/j-carver-rye-whiskey-minnesota
