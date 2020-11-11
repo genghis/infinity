@@ -40,3 +40,17 @@ A place to document our fragmented infinity bottle, the way we change it, and to
 * J Carver Straight Rye Whiskey
   * Distiller Link: https://www.jcarverdistillery.com/ryes
   * Review Link: https://thewhiskeywash.com/whiskey-styles/american-whiskey/j-carver-rye-whiskey-minnesota
+
+## Sept 20 Addition
+
+~300ml left of above, add 750ml of:
+* Templeton 4 year
+  * Distiller Link: https://www.templetonrye.com/the-good-stuff/
+  * Review Link: https://whiskeyconsensus.com/templeton-rye-4-year-old-review
+
+## Nov 2 Addition
+
+~400ml left of above, add 750ml of:
+* Rittenhouse Rye Bottled in Bond 100 Proof
+  * Distiller Link: https://heavenhilldistillery.com/rittenhouse-rye.php
+  * Review Link: https://www.breakingbourbon.com/review/rittenhouse-rye-bottled-in-bond
